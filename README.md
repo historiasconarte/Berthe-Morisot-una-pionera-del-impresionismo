@@ -1,1 +1,3 @@
 # Berthe-Morisot-una-pionera-del-impresionismo
+Berthe Morisot, una de las figuras más influyentes del impresionismo, revolucionó el arte con su enfoque en la vida cotidiana y privada. Desde su infancia en Bruselas hasta su éxito en el Salón de París, Morisot capturó momentos íntimos con una simplicidad y una luz únicas. Obras como "La cuna" y "La psyche" destacan su habilidad para transformar escenas domésticas en arte sublime. Morisot no solo pintó su realidad, sino que también desafió las normas sociales de su tiempo, dejando un legado perdurable en la historia del arte.
+https://historiasconarte.com/2024/06/18/berthe-morisot/
